@@ -1,1 +1,1 @@
-# sprosym2025
+# https://prosym.org/sprosym2025/
